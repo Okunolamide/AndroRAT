@@ -77,8 +77,8 @@ The two screenshots below shows two others tabs for two functionalities which ar
 ## Follow us !
 [The404Hacking](https://T.me/The404Hacking) - [The404Cracking](https://T.me/The404Cracking)
 
-[Instagram](https://instagram.com/The404Hacking) - [GitHub](https://github.com/The404Hacking)
+[Instagram](https://instagram.com/Okunolamide) - [GitHub](https://github.com/Okunolamide)
 
 [YouTube](http://yon.ir/youtube404) - [Aparat](http://www.aparat.com/The404Hacking)
 
-[Email](mailto:The404Hacking.Team@Gmail.Com)
+[Email](mailto:olakiks3322@gmail.com)
